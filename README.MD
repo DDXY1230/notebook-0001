@@ -2,3 +2,4 @@
 > 仓库地址是：
 > https://github.com/DDXY1230/notebook-01.git
 > 好好学习天天向上，哈哈哈
+头的懒总是要还的，好好珍惜吧
